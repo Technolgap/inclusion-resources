@@ -12,8 +12,11 @@ If there's anything you would like to add, feel free to shoot me a direct messag
 We hope this is helpful for you and we are always open to feedback and adding more content!
 
 Warmest regards, 
+
 Sarah Ali
+
 Director of Inclusion
+
 Technolgap
 
 
